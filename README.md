@@ -35,6 +35,7 @@
 # 6. Killing People
 1. There must be a roleplay reason for killing someone
 1. Revenge-RDM is not allowed
+1. MassDM is not allowed (as long as it's intentional)
 
 # 7. Past Lives
 > NLR doesn't exist, but raiders may not return if all their team members are dead
