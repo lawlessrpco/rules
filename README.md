@@ -1,3 +1,9 @@
+>
+> The rules are a Work In Progress, and staff are allowed to punish for thigns that might not be on here but shouldn't be allowed. If a staff member abuses this, please report them to the server owners directly.
+>
+> Report bad things to Lion#3933, my DMs are always open and i usualy don't bite
+>
+
 # 1. General Guidelines & Overview
 > It's not that deep, were all here to have fun and make memories
 
